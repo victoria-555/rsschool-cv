@@ -27,4 +27,4 @@ Responsible, sociable, hardworking, capable of self-education. I like to spend f
 ### Education
 
 University : POLESSU (Pinsk, Belarus, 2013-2017) FBD, 
-POLESSU (2019-2020) - Master of Economics.
+POLESSU (2018-2020) - Master of Economics.
